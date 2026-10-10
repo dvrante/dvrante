@@ -1,4 +1,4 @@
-10/10 HAPPY DANTE DAY (its still 9/10 for me but shhhhhhhhhhhhh)
+10/10 HAPPY DANTE DAY
 <br>
 <br>
 
